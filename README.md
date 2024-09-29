@@ -1,2 +1,2 @@
 # Inqiludio-Digital
-![Inqiludio Digital](https://github.com/user-attachments/assets/b81ebaa2-ac01-46eb-9576-ee36cd3c6524)
+![Inqulidio Digital](https://github.com/user-attachments/assets/d6c91e96-6447-43a6-9382-074fe206e692)
